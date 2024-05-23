@@ -1,2 +1,7 @@
 # Discord-username-checker-
 ""THIS TOOL IS NOT FREE""
+![image](https://github.com/j0xb/Discord-username-checker-/assets/74291102/009d0c2d-2466-4d15-bc40-273005168e23)
+THAT MY HITS IN 15 MINS
+SO FAST WITH PROXIES ( I USED FREE PROXY ) 
+NO NEED FOR TOKEN !
+FOR MORE INFO : INSTAGRAM @ZBZ5 , TELEGRAM @HHE1H
